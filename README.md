@@ -1,1 +1,1 @@
-### Hi there, it's n0pseudo
+### Hi there, it's n0pseudo 🏴‍☠️
