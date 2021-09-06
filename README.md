@@ -2,6 +2,6 @@
 
 *The dumbest hacker ;p*
 
-![wp8080737](https://user-images.githubusercontent.com/90071534/132075982-c6fecd13-509a-4b69-b3b6-5194fc35dda8.jpg)
+![371Z](https://user-images.githubusercontent.com/90071534/132250609-ef8321cd-a3dd-4067-a3bd-2d6599db6dd4.gif)
 
 [Follow Me or Gay](https://twitter.com/n0pseudo)
